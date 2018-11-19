@@ -1,3 +1,3 @@
 # mis
 
-### I love MIS <3 !
+### I love MIS ^____^ !
